@@ -155,7 +155,7 @@ Contributions are welcome! Please:
 ## 📬 Contact
 
 For questions or collaboration, feel free to reach out:  
-**MUNASHE MURAMBIWA ** munathe1st@gmail.con 
+**MUNASHE MURAMBIWA ** munathe1st@gmail.com 
 **GitHub**: https://github.com/Mukundithe1st
 
 ---
